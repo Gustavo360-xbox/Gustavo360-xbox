@@ -2,7 +2,7 @@
 - 👀 Eu estou interessado em empresas de sites, jogos, e aplicativos
 - 🌱 Sou novo com mente desenvolvida
 - 💞️ Estou olhando para colaborar com jogos e aplicativos
-- 📫 Para me achar mande um email 
+- 📫 Para achar me mande um email 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: rapido, agilidade, inteligencia, ingles
 
